@@ -1,7 +1,5 @@
 # Maverick Metalabs
 
-## Built with Love by Maverick Metalabs
-
 ### About Us
 Love Monster was created in late 2021 by Maverick Metalabs, a global technology company dedicated to pushing the boundaries of innovation and driving meaningful change through cutting-edge solutions. With a passion for technology that is matched only by our commitment to excellence, we boast over 12 years of experience in the industry.
 
