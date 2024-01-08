@@ -12,5 +12,5 @@ Our proven track record includes delivering innovative solutions to a diverse ar
 At Maverick Metalabs, we are steadfast in our mission to transform the world through technology. Our continuous pursuit of innovation and excellence has led to the creation of several #1 mobile apps on the app store, demonstrating our unwavering commitment to pushing the limits of what is possible.
 
 ### Contact Us
-For more information about Maverick Metalabs and our projects, visit [Our Website](https://lovemonsternft.com) or follow us on [Twitter](https://twitter.com/lovemonsternft), [Medium](https://medium.com/@lovemonsternft).
+For more information about Maverick Metalabs and our projects, visit [Our Website](https://lovemonsternft.com) or follow us on [Twitter](https://twitter.com/lovemonsternft) and [Medium](https://medium.com/@lovemonsternft).
 
